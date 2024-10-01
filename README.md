@@ -16,5 +16,5 @@ Mình đặc biệt yêu thích **các hoạt động ngoài trời** và luôn 
 - Tham gia hoặc cộng tác trong các hoạt động thiên nhiên, chăm sóc cây cảnh, thú cưng.
 
 ## 📫 Kết nối với mình qua:
-- **Discord**: _ellie3117_
+- **Discord**: [Ellie's Discord](https://discord.com/users/1002018505601863730)
 - **Profile**: [Ellie's Profile](https://guns.lol/_ellie3117_)
